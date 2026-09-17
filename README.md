@@ -5,5 +5,5 @@
 https://nano5.notion.site/JavaScript-f94daf211d428311a5a801dd193d10ca?source=copy_link
 
 
-:alien:
+:alien: :clown_face: :clown_face:
 ---
